@@ -1,9 +1,9 @@
-# JesusMinaya62avio
+# JesusMinaya6°2°avio
 # Presentación de Jesús Minaya 
 **Hola profe buenas tardes, o en la hora en lo que esté viendo esta presentación**
 ##
 Mi nombre es Jesús Minaya.
-Tengo 16 años y soy de 5°2° Aviónica. 
+Tengo 17 años y soy de 6°2° Aviónica. 
 ##
 Soy una persona paciente, me cuestan algunas cosas de informática y programación debido a que no tuve mucha informática en mi escuela anterior. Soy de aprender rápido y ahora poseo herramientas y conocimientos que me pueden ayudar a aprobar esta materia.
 ##
